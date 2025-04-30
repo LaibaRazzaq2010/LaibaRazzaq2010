@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on data-driven projects or anything related to Python, R, or machine learning.
 
-📫 How to reach me: shoot an email to laiba@example.com.
+📫 How to reach me: shoot an email to laibarazzaq2010@gmail.com.
 
 😄 Pronouns: She/Her
 
