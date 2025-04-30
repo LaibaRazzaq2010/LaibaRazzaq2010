@@ -11,3 +11,7 @@
 😄 Pronouns: She/Her
 
 ⚡ Fun fact: I’m a writer too – when I’m not crunching numbers, I’m crafting stories with unexpected twists!
+
+📜 **Want to see my certifications?**  
+Step into my enchanted archive:  
+👉 [My Certificate Portfolio](file:///F:/ayyan.py/certificates.html)
